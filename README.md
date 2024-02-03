@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Shokhriyorr
+- 👀 I’m interested in Kali Linux and Python
+- 📫 How to reach me Telegram @shokhriyorr Instagram Shokhriyorr
+- ⚡ Fun fact  i am foshist
